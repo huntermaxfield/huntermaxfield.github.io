@@ -1,1 +1,2 @@
 keywordPlain = raw_input("Enter keyword: ")
+print keywordPlain
