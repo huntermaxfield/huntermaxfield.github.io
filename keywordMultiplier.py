@@ -1,1 +1,1 @@
-raw_input("Enter Keyword: ")
+print "Enter Keyword"
