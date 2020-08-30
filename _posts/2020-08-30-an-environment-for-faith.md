@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "An Environment for Faith"
-date: 2020-08-20
+date: 2020-08-30
 ---
 
 Harmoniously with my family, my faith forms the undercurrent of everything that means most to me in my life. It is only through long consideration, studying, and conversation that I have come to this faith. My wrestle with God involved a perceived tension between the intellectual and the spiritual, the age-long cliche that drives an ideological wedge between individuals, cities, and countries. My misunderstood perception of God and an overestimation of the current capabilities of the scientific method left me with a one-dimensional view of reality and truth. Following my understanding of the unity between the two, I arrived at my conviction of a God who is the ultimate intellect. As a purpose for this writing, I borrow the words of Austin Farrer - “Rational argument does not create belief, but it maintains a climate in which belief may flourish.” Here, I explain how I’ve accepted a divine Creator despite the growing opinion that such a belief is anti-science, ignorant, and morally incompatible.
