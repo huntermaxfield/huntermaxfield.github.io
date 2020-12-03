@@ -2,6 +2,16 @@
 layout: post
 title: "My Thoughts on Christ"
 ---
+<strong>December 3rd, 2020</strong>
+
+The Savior is uniquely qualified to be our Master Teacher and Sheppard.  In "descending below all things", He was also
+able to understand all things.  This includes the most important details of the human experience and the most trivial, 
+the most sublime and the most dreary, the lightest and the darkest.  In laying ourselves at His feet, we give ourselves
+the only chance for eventual relief from and solace in our temptations and deepest of trials.  That is not because He
+was arbitrarily given this power, it is precisely because of His descension and subseqent ascension.  This event surely
+lays claim on being the most historic for mankind, but also for our personal lives - if we allow it to be so.
+
+
 
 <strong>December 2nd, 2020</strong>
 
