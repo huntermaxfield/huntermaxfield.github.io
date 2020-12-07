@@ -2,6 +2,21 @@
 layout: post
 title: "My Thoughts on Christ"
 ---
+**December 6th, 2020**
+
+Some may think it'd be easier if God was granted unrestricted access on judgement.  Meaning, instead of having laws that
+dictate our eternal progress, it would be more arbitrarily decided.  These would be those who wonder, "If i'm a good
+person, won't God save me regardless of my willingness to keep certain commandments?" While enticing, it's much more
+satisfying that God has instead given us a code of law that we can learn, study, and actively choose to live.  These 
+are not arbitrarily laws, but instead they prepare us to live in a heavenly kingdom again. 
+
+Given our imperfections, it is marvelous that a Savior was given to allow for mercy from these laws when we fall short. 
+Together, His justice and mercy provide the confines needed to grow and become "even as He is." It is that life - He 
+that provides opportunity after opportunity - that we celebrate during Christmas.  Is there another message more deserving
+of our time?
+
+
+
 **December 5th, 2020**
 
 Terry Tao, a famous mathematician, broke mathematical understanding into three different phases: pre-rigorours, rigorous,
