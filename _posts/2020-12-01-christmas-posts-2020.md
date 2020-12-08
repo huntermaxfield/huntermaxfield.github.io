@@ -2,6 +2,20 @@
 layout: post
 title: "My Thoughts on Christ"
 ---
+**December 7th, 2020**
+
+Jesus was "despised and rejected of men".  The Creator of Heaven and Earth, Wonderful, Counselor, the Mighty God - yet they
+"esteemed Him not".  Surely, never in human history and has someone deserved more praise, but instead received vitriol
+and betrayal.  Even greater than calming the sea, our Savior has always managed to love those who loved him not, extend
+his hand where it had been numerously rejected, and show immediate mercy after years of denial. 
+
+His composure and compassion amaze me.  How can someone so hated love so dearly? Yet, there He stands, our ultimate example
+of His commandment to love your enemies, bless those that curse you, and pray for those that despitefully use you.  Let 
+God be praised for this Gift, His Son, who not only gives us an example of how to live but also provides the power by 
+which we can do so. 
+
+
+
 **December 6th, 2020**
 
 Some may think it'd be easier if God was granted unrestricted access on judgement.  Meaning, instead of having laws that
