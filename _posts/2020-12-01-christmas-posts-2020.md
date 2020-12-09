@@ -2,6 +2,29 @@
 layout: post
 title: "My Thoughts on Christ"
 ---
+**December 8th, 2020**
+
+In any setting of leadership, there are some who govern by force and others who do so by example.  Some say, "I am in
+charge, and as such.....".  This approach leads to those lack of respect and ultimate abandonement.  None of this
+is novel, in fact its become leadership 101 ever since Maxwell released his "5 Principles of Leadership".  Even long
+before then, though, we had been given an example that reigns supreme.
+
+Life isn't easy.  The very goal of it is to change us, to mold us in to human beings that are far different than that of
+the status quo.  Indeed, we have been asked to be kind when the world is rude, humble when most are prideful, patience 
+when most of us grow uneasy after seconds of stillness.  As a culmination of that we are asked to "Be ye therefore perfect",
+acting as an eventual hope to the daily focus on improvement.  However, we mustn't act as though Someone didn't come before
+us and show us the way.  No - we aren't asked to live in a way that is far different than any of those who have *ever*
+come before us.  On the contrary, while He held power beyond comprehension, He also yielded that very kindness, humility,
+patience, and even perfection that we yearn for.  In a place where we will be led, either by choice or subconciously,
+I choose to be led by He who is in the trenches with me because He dug them himself. 
+
+Jesus Christ stands alone in His ability to lead, because no one has suffered like he suffered.  That suffering brought
+empathy, because He literally stood in our very shoes, no matter where those shoes may be.  Most amazingly, He is not
+selective in who He leads.  Regardless of our past, nationality, gender, or social status the invitation is the same:
+Come, Follow Me.
+
+
+
 **December 7th, 2020**
 
 Jesus was "despised and rejected of men".  The Creator of Heaven and Earth, Wonderful, Counselor, the Mighty God - yet they
