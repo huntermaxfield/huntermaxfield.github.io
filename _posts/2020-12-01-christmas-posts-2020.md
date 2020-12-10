@@ -2,10 +2,24 @@
 layout: post
 title: "My Thoughts on Christ"
 ---
+**December 9th, 2020**
+
+The greater someone has assisted us in life, the greater responsibility we feel to not disappoint them.  For example, 
+the disappoint of parents is a horrible feeling, many of us striving to live a life the exclusively would be proud of.
+Today, I wonder why we don't feel that responsibility to our God as acutely. The words of King Benjamin ring so loudly,
+
+"And now, if God, who has created you, on whom you are dependent for your lives and for all that ye have and are.."
+
+No one has assisted us more.  I believe our God is in the details, one who Has been in each crucial moment to prompt and
+remind.  Given that everything we have can be traced back to Him, our possessions, loved ones, and talents stand as a 
+constant reminder that He above all deserves our desire to impress.  
+
+
+
 **December 8th, 2020**
 
 In any setting of leadership, there are some who govern by force and others who do so by example.  Some say, "I am in
-charge, and as such.....".  This approach leads to those lack of respect and ultimate abandonement.  None of this
+charge, and as such.....".  This approach leads to those lack of respect and ultimate abandonment.  None of this
 is novel, in fact its become leadership 101 ever since Maxwell released his "5 Principles of Leadership".  Even long
 before then, though, we had been given an example that reigns supreme.
 
@@ -15,11 +29,11 @@ when most of us grow uneasy after seconds of stillness.  As a culmination of tha
 acting as an eventual hope to the daily focus on improvement.  However, we mustn't act as though Someone didn't come before
 us and show us the way.  No - we aren't asked to live in a way that is far different than any of those who have *ever*
 come before us.  On the contrary, while He held power beyond comprehension, He also yielded that very kindness, humility,
-patience, and even perfection that we yearn for.  In a place where we will be led, either by choice or subconciously,
+patience, and even perfection that we yearn for.  In a place where we will be led, either by choice or subconsciously,
 I choose to be led by He who is in the trenches with me because He dug them himself. 
 
 Jesus Christ stands alone in His ability to lead, because no one has suffered like he suffered.  That suffering brought
-empathy, because He literally stood in our very shoes, no matter where those shoes may be.  Most amazingly, He is not
+empathy, because He literally stood in our shoes, no matter where those shoes may be.  Most amazingly, He is not
 selective in who He leads.  Regardless of our past, nationality, gender, or social status the invitation is the same:
 Come, Follow Me.
 
