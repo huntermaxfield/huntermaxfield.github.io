@@ -2,6 +2,28 @@
 layout: post
 title: "My Thoughts on Christ"
 ---
+
+**December 10th, 2020**
+
+There will come the day when "every knee shall bow and tongue confess before him ... that he is God."  I don't believe
+that it will be done in anger, nor forced.  I believe all of us, believer and non-believer alike, will be in awe by His
+grace and grandeur.  For us to be forced would break the law of choice, so instead I speculate that we will be
+weak, falling to our knees and speechless.  In that moment, all that He has done for us will be made clear.  Perhaps the
+entirety of the past will be before us, finally able to see that what we yearned for most He was always there to provide.
+
+The difference between those who sought out Christ and those who denied Him will be their attitude as they kneel.  Overcome
+by His glory, they may only have capacity for but a minute of regret at time lost.  A life spent in pursuit for that which
+brings happiness, only to realize that where they looked, it was never to be found.  Where they sought for comfort
+in substance, instead they should have looked above.  With all of the opportunities that they were given at the forefront
+of their mind, they must wonder why they didn't accept His hand just one of the many times it was extended.  
+
+For me and those I love, I pray that regret never comes.  I pray that our knee's bend with humility and our confession
+isn't our first realization at His reality.  I pray that this day will simply be the culmination of countless occasions
+of micro-confessions, the daily decisions we have to choose that which is beautiful over that which is comfortable.  So, as
+a start, I'll choose Christ today knowing full well that the momentum of this decision will lead to something marvelous. 
+
+
+
 **December 9th, 2020**
 
 The greater someone has assisted us in life, the greater responsibility we feel to not disappoint them.  For example, 
