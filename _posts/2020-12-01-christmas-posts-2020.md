@@ -3,17 +3,50 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 12th, 2020**
+
+We are amazed at those who push their bodies beyond perceived physical limitations.  I think of Pete Kostelnick who ran
+over 70 miles daily for 42 days or those who strain their bodies through excessive fasting and unique diets.  We are
+amazed at these stories, and rightfully so.  On one side, it shows that we as a species are capable of so much more if only
+we set our minds on it.  On the other side, more spiritually, it puts into perspective just how much suffering took place in Gethsemane. 
+
+For the sake all that is good, all that brings light, all that is eternal, He subjected His sinless soul to anguish
+beyond compare.  With the foresight only attributable to a literal God, He shall "suffered temptations, and pain of body,
+hunger, thirst, and fatigue, even more than man can suffer, except it be unto death." His body was truly pushed to its limits,
+beyond what we could ever comprehend, for us.  For no gain of His own, His body and soul went to the ends of possibility.
+
+While typically awe is the emotion that overcomes me, today it is gratitude.  Gratitude for my Savior whose love extended the
+realm of human suffering so that we didn't have to experience it ourselves.
+
+
+**December 11th, 2020**
+
+Making Christ a crucial part of our lives indicates action.  It is not something that happens by passive participation
+in Church on Sundays or disengaged listening of a spiritual thought led by someone else.  Sure, those moments prompt us to
+be different, but without the intentional action of dedicating our *desire* to Him, no relationship can be formed.  This
+is one precise manifestation of "carnal security", where we get so caught of in the comfort of how things are that we lose
+sight of what will be.  
+
+Much like we make an active effort to improve in our profession, earn excellent grades, or get our body in good physical shape,
+we must exert that same effort in trying to understand the things of God.  Given His goodness and expeditious response to our
+pleas, I believe that the heavens could open in ways we never before imagined if we so desire it.  Lack of revelation in any form is not
+because of His lack of power, but due to our lack of intention in seeking Him out. I speak of a dying need to know
+Him as He knows us, love Him as He loves us, and return to Him as He wants for us.  I am sure He stands waiting, it is
+only our apathy that stands in the way.
+
+
+
 **December 10th, 2020**
 
 There will come the day when "every knee shall bow and tongue confess before him ... that he is God."  I don't believe
 that it will be done in anger, nor forced.  I believe all of us, believer and non-believer alike, will be in awe by His
 grace and grandeur.  For us to be forced would break the law of choice, so instead I speculate that we will be
-weak, falling to our knees and speechless.  In that moment, all that He has done for us will be made clear.  Perhaps the
+weak, falling to our knees and speechless.  In that moment, all that He has done for us will be clear.  The
 entirety of the past will be before us, finally able to see that what we yearned for most He was always there to provide.
 
-The difference between those who sought out Christ and those who denied Him will be their attitude as they kneel.  Overcome
-by His glory, they may only have capacity for but a minute of regret at time lost.  A life spent in pursuit for that which
-brings happiness, only to realize that where they looked, it was never to be found.  Where they sought for comfort
+The difference between those who sought out Christ and those who denied Him will be their attitude as they kneel.  Some 
+will regret time lost.  A life spent in pursuit for that which
+brings happiness, only to realize that they looked where it could never be found.  Where they sought for comfort
 in substance, instead they should have looked above.  With all of the opportunities that they were given at the forefront
 of their mind, they must wonder why they didn't accept His hand just one of the many times it was extended.  
 
@@ -27,8 +60,8 @@ a start, I'll choose Christ today knowing full well that the momentum of this de
 **December 9th, 2020**
 
 The greater someone has assisted us in life, the greater responsibility we feel to not disappoint them.  For example, 
-the disappoint of parents is a horrible feeling, many of us striving to live a life the exclusively would be proud of.
-Today, I wonder why we don't feel that responsibility to our God as acutely. The words of King Benjamin ring so loudly,
+the disappointment of parents is a horrible feeling, many of us striving to live a life they exclusively would be proud of.
+Today, I wonder why we don't feel that responsibility as acutely to our God. The words of King Benjamin ring so loudly,
 
 "And now, if God, who has created you, on whom you are dependent for your lives and for all that ye have and are.."
 
@@ -46,9 +79,9 @@ is novel, in fact its become leadership 101 ever since Maxwell released his "5 P
 before then, though, we had been given an example that reigns supreme.
 
 Life isn't easy.  The very goal of it is to change us, to mold us in to human beings that are far different than that of
-the status quo.  Indeed, we have been asked to be kind when the world is rude, humble when most are prideful, patience 
-when most of us grow uneasy after seconds of stillness.  As a culmination of that we are asked to "Be ye therefore perfect",
-acting as an eventual hope to the daily focus on improvement.  However, we mustn't act as though Someone didn't come before
+the status quo.  Indeed, we have been asked to be kind when the world is rude, humble when most are prideful, patient
+when most grow uneasy after mere seconds of stillness.  As a culmination of that, as if the bar wasn't high enough already
+,we are asked to "Be ye therefore perfect".  However, we mustn't act as though Someone didn't come before
 us and show us the way.  No - we aren't asked to live in a way that is far different than any of those who have *ever*
 come before us.  On the contrary, while He held power beyond comprehension, He also yielded that very kindness, humility,
 patience, and even perfection that we yearn for.  In a place where we will be led, either by choice or subconsciously,
