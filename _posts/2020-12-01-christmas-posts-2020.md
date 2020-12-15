@@ -3,6 +3,14 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 14th, 2020**
+
+“In the contemplation of the miracles wrought by Christ, we must of necessity recognize the operation of a power transcending our present human understanding. In this field, science has not yet advanced far enough to analyze and explain. To deny the actuality of miracles on the ground that, because we cannot comprehend the means, the reported results are fictitious, is to arrogate to the human mind the attribute of omniscience, by implying that what man cannot comprehend cannot be, and that therefore he is able to comprehend all that is." - James Talmage
+
+This insightful perspective eases this tension that has been between science and religion for centuries now.  Christ, far from being a Zeus-like figure perched on his heavenly throne with a lightning rod, is instead able to bring to pass miracles that are beyond our comprehension because His understanding of natural law surpasses ours without measure.  I believe Christ to be the ultimate champion of scientific endeavors, because the discovery of physical laws only brings us closer to understanding Him and His creations.  A person of God and science stands uniquely positioned to learn beyond the secular, because she can literally see the end (that God exists) from the beginning.  Such an assumption constrains the number of possibilities scientifically and sets us on our path.  I know that He lives.  I know that His ways are not my ways.  I also know that He has given us the faculties that, if we so desire, we can come to know Him in this life.  Those faculties are not limited to neither the spiritual or the intellectual,  but a beautiful combination of both.  Anyone who restricts themselves to only one method of investigation is inevitably leaving something on the table. 
+
+
+
 **December 13th, 2020**
 
 Christ listened.  He still does.  He has a track record of following a socratic like way of teaching, posing questions 
@@ -140,7 +148,7 @@ of our time?
 
 **December 5th, 2020**
 
-Terry Tao, a famous mathematician, broke mathematical understanding into three different phases: pre-rigorours, rigorous,
+Terry Tao, a famous mathematician, broke mathematical understanding into three different phases: pre-rigorous, rigorous,
 and post-rigorous.  Essentially, the first phase consists of memorizes formula's and plugging in values (which lasts through
 the first couple years of college - most non-mathematicians never get out of this phase), the second phase focuses on
 more formal thinking (this is when problems turn into writing proofs - usually the last 3 or 4 semesters of an undergraduate
