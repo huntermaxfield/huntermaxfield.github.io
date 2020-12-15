@@ -3,6 +3,21 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 13th, 2020**
+
+Christ listened.  He still does.  He has a track record of following a socratic like way of teaching, posing questions 
+and then waiting for answers.  He isn't the bang at the pulpit type, nor the teacher who only likes to hear himself talk.
+In a world where everyone wants to be heard, there is no one left to listen.  He's there though, waiting for us to realize
+He's the type that gives no limits to your speaking time, responding with concise advice only.  He's the perfect therapist,
+the patient friend, the wise grandfather.  The Light of Christ guides our intuition for how we *ought* to be, also 
+giving us the blueprint for how Christ is.
+
+While at the beginning, we may dominate the conversation, eventually our heart begins to yearn for what He has to say. Listen,
+act, and come back ready for the next assignment.  In this iterative process, we will find that His advice isn't arbitrary.  He
+is prudent, knowing exactly what we need in order to take the next step toward His type of life, even that eternal. 
+
+
+
 **December 12th, 2020**
 
 We are amazed at those who push their bodies beyond perceived physical limitations.  I think of Pete Kostelnick who ran
