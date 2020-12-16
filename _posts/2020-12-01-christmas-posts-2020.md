@@ -3,6 +3,16 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 15th, 2020**
+
+I remember well a conversation that my companion and I had with an individual while on my 2 year mission in Uruguay.  She and her husband considered themselves of the intellectual class, which to them meant the divinity of Christ was but a mere illusion, with no other option.  Their conclusion was that Christ was a good man who taught good things, but that He couldn't have been a savior, nor risen on the third day.  I now know this as a common argument, but it was the first time I had heard it.  I cannot remember what followed, but do remember wondering how someone could come to that conclusion, because that didn't seem a plausible option.  We must make no mistake, Christ claimed to be the Son of God, the very Messiah the Jews had been waiting for.  If He was not everything He said He was, then He would be a fraud.  He should be held accountable for leading His little band of followers down a path that led to torture and death.  He would be nothing short of the cunning cult leader that many ascribe to religion.  C.S. Lewis said it best,
+
+"I am trying here to prevent anyone saying the really foolish thing that people often say about Him: I'm ready to accept Jesus as a great moral teacher, but I don't accept his claim to be God. That is the one thing we must not say. A man who was merely a man and said the sort of things Jesus said would not be a great moral teacher. He would either be a lunatic — on the level with the man who says he is a poached egg — or else he would be the Devil of Hell. You must make your choice. Either this man was, and is, the Son of God, or else a madman or something worse. You can shut him up for a fool, you can spit at him and kill him as a demon or you can fall at his feet and call him Lord and God, but let us not come with any patronizing nonsense about his being a great human teacher. He has not left that open to us. He did not intend to. ... Now it seems to me obvious that He was neither a lunatic nor a fiend: and consequently, however strange or terrifying or unlikely it may seem, I have to accept the view that He was and is God."
+
+The day will come and come soon where we must take a stance and decide who we believe Christ really was.  The two clear options that He presents us leaves fence sitting as an unfulfilling and nonsensical option.  As for me, I have chosen.  Through studying, pondering, and pray my mind has been made up.  I can no more deny Christ than I could the basic realities as life.  He is the Mighty God, the Prince of Peace, Savior, and Redeemer.  
+
+
+
 **December 14th, 2020**
 
 “In the contemplation of the miracles wrought by Christ, we must of necessity recognize the operation of a power transcending our present human understanding. In this field, science has not yet advanced far enough to analyze and explain. To deny the actuality of miracles on the ground that, because we cannot comprehend the means, the reported results are fictitious, is to arrogate to the human mind the attribute of omniscience, by implying that what man cannot comprehend cannot be, and that therefore he is able to comprehend all that is." - James Talmage
