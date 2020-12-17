@@ -3,6 +3,16 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 16th, 2020**
+
+Imagine yourself with your friends in a conversation about the talent of different players in professional baseball.  All nearly equals, a back-and-forth ensues with clear disagreement.  Since there is no real expert amongst you, the different opinions rarely will change anyone's mind.  Now, imagine Derek Jeter walks in and has a thought or two to contribute.  You'd be hard pressed to find a friend in the group that wouldn't keep his mouth shut and *submit* to Derek's opinions.  Any other route would be irrational.  
+
+The reality of life is that there are some who are more wise (the choice between wise and intelligent here is an important distinction).  These experts are pivotal to society, whether they be teachers, doctors, laywers, or mechanics.  We listen to their advice nearly without second thought, which is nearly always in our best interest.  It is foolish, then, to let our lack of comprehension about God's ways prevent us from following them.  If we believe that He exists, we don't need to understand the intricacies of the Atonement of Christ to experience it heal us, nor do we need video footage of His resurrection to live with a strong hope that we will see deceased loved ones again.  
+
+Our instinct to hold the standard of evidence higher for a belief in God is rooted in our fear of it being true so that we don't have to change, not rooted in some intellectual superiority as is often portrayed.  Indeed, if we simply went off those feelings that consume us when we follow His teachings we would fall to His feet in faith, regardless of how many verses we have memorized.  
+
+
+
 **December 15th, 2020**
 
 I remember well a conversation that my companion and I had with an individual while on my 2 year mission in Uruguay.  She and her husband considered themselves of the intellectual class, which to them meant the divinity of Christ was but a mere illusion, with no other option.  Their conclusion was that Christ was a good man who taught good things, but that He couldn't have been a savior, nor risen on the third day.  I now know this as a common argument, but it was the first time I had heard it.  I cannot remember what followed, but do remember wondering how someone could come to that conclusion, because that didn't seem a plausible option.  We must make no mistake, Christ claimed to be the Son of God, the very Messiah the Jews had been waiting for.  If He was not everything He said He was, then He would be a fraud.  He should be held accountable for leading His little band of followers down a path that led to torture and death.  He would be nothing short of the cunning cult leader that many ascribe to religion.  C.S. Lewis said it best,
