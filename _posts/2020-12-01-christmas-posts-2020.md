@@ -3,6 +3,13 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 19th, 2020**
+
+If our aim is comfortability, we won't maximize that by believing in Christ.  Much like a child in grade school isn't maximizing their ease of life by going to school, nor should a Christian expect this life to be easy for them, because it's not meant to be.  To take up our cross and follow Christ will likely bring ridicule in our life, daily reflection on things we need to change, and a sacrifice of doing that which we want for that which we need.  Many want the peace they see in believers, without doing the things (because they're uncomfortable) that seem to have brought that peace.  It cannot be so, or God would cease to be God. 
+
+Believing in Christ may not always bring blessings in this life, but is in preparation for a world to come.  A world that, because we cannot imagine it, we do not know how to prepare on our own.  In submitting our agency to His will, we allow Him to mold us into someone who is ready to inherit an eternal peace for a period of discomfort. 
+
+
 **December 18th, 2020**
 
 Most kids go through a phase where school seems completely useless.  When priorities don't extend beyond teenage romance and the day's gossip, it's hard to appreciate the importance of the components that make up a cell or the pythagorean theorem.  At some point along the path of life, we inevitably wish for those days.  That we would have gotten better grades, paid better attention, and not talked (or texted, depending on your generation) through all of our classes.  Somehow, not instantaneously, our perspective changes and we see how valuable things were. 
