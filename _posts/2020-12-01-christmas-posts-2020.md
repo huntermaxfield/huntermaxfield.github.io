@@ -3,6 +3,20 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 18th, 2020**
+
+Most kids go through a phase where school seems completely useless.  When priorities don't extend beyond teenage romance and the day's gossip, it's hard to appreciate the importance of the components that make up a cell or the pythagorean theorem.  At some point along the path of life, we inevitably wish for those days.  That we would have gotten better grades, paid better attention, and not talked (or texted, depending on your generation) through all of our classes.  Somehow, not instantaneously, our perspective changes and we see how valuable things were. 
+
+Reading scriptures, kneeling to pray, and other religious activities can seem uncomfortable to those who aren't accustomed (and rightfully so!).  Praying over hamburgers and hotdogs isn't exactly intuitive, nor is reading from a book that is set thousands of years ago.  However, eventually a time comes when we care less about the comfortably of an activity and more about the results they produce.  Christ asks us to do certain things, because He knows best not because He thinks that we know best. 
+
+
+
+**December 17th, 2020**
+
+Christ ultimately asks us to make a decision in uncertainty.  He knows that all the facts aren't at our disposal, that His teachings are often at odds with whats trendy to believe, and that the past can seem convoluted.  It is in such uncertainty that our need for Him grows, a once kindled flame grows into a fire of desire to know Him.  I'm grateful for this uncertainty, because it allows me to actually *choose* Him, rather than just be *given* Him.  When I choose Him in uncertainty, because He knows exactly what that must be like, He can reward me with clarity in a language that I understand.
+
+
+
 **December 16th, 2020**
 
 Imagine yourself with your friends in a conversation about the talent of different players in professional baseball.  All nearly equals, a back-and-forth ensues with clear disagreement.  Since there is no real expert amongst you, the different opinions rarely will change anyone's mind.  Now, imagine Derek Jeter walks in and has a thought or two to contribute.  You'd be hard pressed to find a friend in the group that wouldn't keep his mouth shut and *submit* to Derek's opinions.  Any other route would be irrational.  
