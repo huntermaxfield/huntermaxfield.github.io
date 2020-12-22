@@ -3,11 +3,20 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 20th, 2020**
+
+Christ gives unto us according to our desires, the scriptures give us no room to accept this as anything but fact.  But why?  
+
+There are two reasons that come to mind, one for the better and the other for the worse.  For one, realizing that we have achieved what we once wished for is humbling.  Further, it brings us to our knees in gratitude (whether that be to God or not).  To wish for something, work for that, and achieve it is surely a manifestation of God's grace and everlasting love.  In a plan designed to have us get to know God, granting to us according to our desires is a sure fast way for us to see Him in a world where distractions are rampant.  With all goals that are achieved, there comes a moment of realization.  It seems as if its almost magic that certain things came together perfectly for us to reach the finish line.  Though hard work always has its part, we feel as though magic also played a role.  These moments are an unconscious recognition of something - Someone - much greater, Someone much better.  
+
+
+
 **December 19th, 2020**
 
 If our aim is comfortability, we won't maximize that by believing in Christ.  Much like a child in grade school isn't maximizing their ease of life by going to school, nor should a Christian expect this life to be easy for them, because it's not meant to be.  To take up our cross and follow Christ will likely bring ridicule in our life, daily reflection on things we need to change, and a sacrifice of doing that which we want for that which we need.  Many want the peace they see in believers, without doing the things (because they're uncomfortable) that seem to have brought that peace.  It cannot be so, or God would cease to be God. 
 
 Believing in Christ may not always bring blessings in this life, but is in preparation for a world to come.  A world that, because we cannot imagine it, we do not know how to prepare on our own.  In submitting our agency to His will, we allow Him to mold us into someone who is ready to inherit an eternal peace for a period of discomfort. 
+
 
 
 **December 18th, 2020**
