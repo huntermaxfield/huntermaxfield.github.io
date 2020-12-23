@@ -3,6 +3,14 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 21st, 2020**
+
+“I believe in Christianity as I believe that the sun has risen: not only because I see it, but because by it I see everything else.” - CS Lewis
+
+There is a change of perspective when we choose to follow Him.  Written in our hearts, we can't help but to see new scenarios with a budding optimism or view the trials of life with prudence.  Truly accepting Christ doesn't just bring with it a change in behavior, but a change in thought.  A change in perspective.
+
+
+
 **December 20th, 2020**
 
 Christ gives unto us according to our desires, the scriptures give us no room to accept this as anything but fact.  But why?  
