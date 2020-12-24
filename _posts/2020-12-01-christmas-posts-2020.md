@@ -3,6 +3,18 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 22nd, 2020**
+
+The impressions of the Spirit leave an indelible impact on the soul.  Though our spirituality is fluid as the tides, there are moments in life that we will remember as divine.  These moments end up being an anchor to souls, able to conquer the temptation or imperfections that poke at us all.  I marvel at *how* He can do this.  His perfect knowledge of us knows how the impression should be communicated and His perfect knowledge of the wondrous union of body and spirit makes sure that this impact will feel a way that is not of this world.  I have felt this in my life, more than just the "chills" or a spontaneous moment of gratitude (though I believe these stem from Him as well) I am speaking of a few times in my life when I have been so convinced by His existence that I'd willingly give my life on it.  The Spirit as His medium, our Savior can touch souls in a way that heals, perfects, and lasts.  
+
+1 Now I, Moroni, after having made an end of abridging the account of the people of Jared, I had supposed not to have written more, but I have not as yet perished; and I make not myself known to the Lamanites lest they should destroy me.
+2 For behold, their wars are exceedingly fierce among themselves; and because of their hatred they put to death every Nephite that will not deny the Christ.
+3 And I, Moroni, will not deny the Christ; wherefore, I wander whithersoever I can for the safety of mine own life.
+
+- Moroni 1:1-3
+
+
+
 **December 21st, 2020**
 
 “I believe in Christianity as I believe that the sun has risen: not only because I see it, but because by it I see everything else.” - CS Lewis
