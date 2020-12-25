@@ -3,6 +3,18 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 24th, 2020**
+
+On the eve of the celebration of His birth, I contemplate the hope He has brought to my life.  There are many times when I feel there is a weakness I won't be able to overcome, yet He reassures me.  Even immediately after an embarrassing display of anger, in my penitence He forgives me.  When I realize how undeserving I am, He makes sure I know He loves me.  To me, this is hope.  That all isn't by chance, that there is meaning to life, that wrongs will be made right, and that we can change into who we want to be.  There is no one He hasn't considered, no rock left unturned.  This perfect plan of hope could be authored by no ordinary man, but only by the King of Kings, the Lord of Lords, that very Jesus that prophets and apostles have testified for years now. 
+
+
+
+**December 23rd, 2020**
+
+I haven't yet met Christ face to face, nor shook His hand for the first time.  I still wonder about His day to day mannerisms, the way He walks, the tone of His voice, and His demeanor in conversation.  While there is much I don't know, I cannot deny I know Him to be warm.  Not of the temperature, but of the heart.  I believe that because He has felt so deeply our pains and afflictions, He knows the worry the accompanies us all.  He conquered the task of the eternities, thus allowing Him to understand and empathize with the most egregious of circumstances.  He comforts the sick who fear death, the thieves who fight hunger, and the alcoholic who never was taught any better.  This understanding brings a warmth that could only characterize a perfect being, even Jesus of Nazareth. 
+
+
+
 **December 22nd, 2020**
 
 The impressions of the Spirit leave an indelible impact on the soul.  Though our spirituality is fluid as the tides, there are moments in life that we will remember as divine.  These moments end up being an anchor to souls, able to conquer the temptation or imperfections that poke at us all.  I marvel at *how* He can do this.  His perfect knowledge of us knows how the impression should be communicated and His perfect knowledge of the wondrous union of body and spirit makes sure that this impact will feel a way that is not of this world.  I have felt this in my life, more than just the "chills" or a spontaneous moment of gratitude (though I believe these stem from Him as well) I am speaking of a few times in my life when I have been so convinced by His existence that I'd willingly give my life on it.  The Spirit as His medium, our Savior can touch souls in a way that heals, perfects, and lasts.  
