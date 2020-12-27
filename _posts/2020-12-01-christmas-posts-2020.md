@@ -3,6 +3,14 @@ layout: post
 title: "My Thoughts on Christ"
 ---
 
+**December 25th, 2020**
+
+In finishing these thoughts, I close by saying I know that Jesus is the Savior of all mankind.  Lost, broken, and as imperfect as we are, He meets us where we are and extends grace. I know that, despite of everything that tells us otherwise, God was in the flesh ~2000 years ago.  He spoke things foreign, did things miraculous, and lived unparalleled.  Before and since, He has done all He can to help us hear amongst the noise, a task we don't make easy for Him.  
+
+God has spoken to me in a way that I understand, appealing to logic when needed, piercing my soul at other times.  He since has left no room for doubt.  In as blunt a way as language allows, I know Christ to be all that scripture says He is - the Great Deliver, the Prince of Peace, even the Great Jehovah.  Nothing is left but to fall at His feet and live in a way that acknowledges Him as such.
+
+
+
 **December 24th, 2020**
 
 On the eve of the celebration of His birth, I contemplate the hope He has brought to my life.  There are many times when I feel there is a weakness I won't be able to overcome, yet He reassures me.  Even immediately after an embarrassing display of anger, in my penitence He forgives me.  When I realize how undeserving I am, He makes sure I know He loves me.  To me, this is hope.  That all isn't by chance, that there is meaning to life, that wrongs will be made right, and that we can change into who we want to be.  There is no one He hasn't considered, no rock left unturned.  This perfect plan of hope could be authored by no ordinary man, but only by the King of Kings, the Lord of Lords, that very Jesus that prophets and apostles have testified for years now. 
